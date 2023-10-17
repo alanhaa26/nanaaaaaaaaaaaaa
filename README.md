@@ -8,9 +8,9 @@ Meu nome é Alana Palmeira ☆
 
 ### Você pode entrar em contato comigo :mailbox
 
-[alana.bostigo@escola.pr.gov.br](https://mail.google.com/mail/u/1/?ogbl#inbox?compose=new)
+ ☆ [alana.bostigo@escola.pr.gov.br](https://mail.google.com/mail/u/1/?ogbl#inbox?compose=new)
 
-[@a.palmeira_](https://www.instagram.com/a.palmeira_/)
+ ☆ [@a.palmeira_](https://www.instagram.com/a.palmeira_/)
 
 ![](https://media.tenor.com/9LUr-_obbVAAAAAC/hello-kitty.gif)
 
